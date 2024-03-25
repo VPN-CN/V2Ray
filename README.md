@@ -4,7 +4,7 @@
 
 [![蓝帆云.png](https://s2.loli.net/2024/03/07/gIXUQjeL7t5ub6y.png)](https://go.51tz.cc/lanfan)
 
-## 蓝帆云-稳定便宜的翻墙机场
+## 蓝帆云-稳定便宜的翻墙机场首选
 
 [**点击直达官网**](https://go.51tz.cc/lanfan)
 
